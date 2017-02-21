@@ -1,0 +1,4 @@
+---
+slug: crazy
+name: crazy
+---
