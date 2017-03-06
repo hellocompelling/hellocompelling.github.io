@@ -1,0 +1,17 @@
+---
+layout: post
+date: '2017-01-24'
+title: "Allure Bridals M505 Modest Lace Wedding Dress"
+category: Allure Bridals
+tags: ["bridals","wedding","crazy","modest","bridal"]
+image: http://www.eudances.com/185-thickbox_default/allure-bridals-m505-modest-lace-wedding-dress.jpg
+---
+Allure Bridals M505 Modest Lace Wedding Dress
+
+On Sales: **$408.99**
+<a href="https://www.eudances.com/en/allure-bridals/59-allure-bridals-m505-modest-lace-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/185-thickbox_default/allure-bridals-m505-modest-lace-wedding-dress.jpg" alt="Allure Bridals M505 Modest Lace Wedding Dress 0" /></a>
+<a href="https://www.eudances.com/en/allure-bridals/59-allure-bridals-m505-modest-lace-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/186-thickbox_default/allure-bridals-m505-modest-lace-wedding-dress.jpg" alt="Allure Bridals M505 Modest Lace Wedding Dress 1" /></a>
+
+Buy it: [Allure Bridals M505 Modest Lace Wedding Dress](https://www.eudances.com/en/allure-bridals/59-allure-bridals-m505-modest-lace-wedding-dress.html "Allure Bridals M505 Modest Lace Wedding Dress")
+
+View more: [Allure Bridals](https://www.eudances.com/en/2-allure-bridals "Allure Bridals")
