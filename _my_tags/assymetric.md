@@ -1,0 +1,4 @@
+---
+slug: assymetric
+name: assymetric
+---
