@@ -1,0 +1,4 @@
+---
+slug: spagetti
+name: spagetti
+---
