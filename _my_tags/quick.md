@@ -1,0 +1,4 @@
+---
+slug: quick
+name: quick
+---
