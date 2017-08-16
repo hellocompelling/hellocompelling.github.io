@@ -3,7 +3,7 @@ layout: post
 date: '2017-04-02'
 title: "Love Marley Alana 55159 Wedding Dress by Watters"
 category: Love Marley
-tags: ["dress","crazy","unique","style","love"]
+tags: ["marley","dress","crazy","sale","unique"]
 image: http://www.eudances.com/7989-thickbox_default/love-marley-alana-55159-wedding-dress-by-watters.jpg
 ---
 Love Marley Alana 55159 Wedding Dress by Watters
