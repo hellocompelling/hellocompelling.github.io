@@ -1,0 +1,4 @@
+---
+slug: whimy
+name: whimy
+---
