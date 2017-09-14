@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-07-13'
+title: "Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress"
+category: Madison James
+tags: ["sleeveless","summer","dress","spaghetti","spring"]
+image: http://www.eudances.com/20623-thickbox_default/madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.jpg
+---
+Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress
+
+On Sales: **$228.98**
+<a href="https://www.eudances.com/en/madison-james/6192-madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/20623-thickbox_default/madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress 0" /></a>
+<a href="https://www.eudances.com/en/madison-james/6192-madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/20627-thickbox_default/madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress 1" /></a>
+<a href="https://www.eudances.com/en/madison-james/6192-madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/20626-thickbox_default/madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress 2" /></a>
+<a href="https://www.eudances.com/en/madison-james/6192-madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/20625-thickbox_default/madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress 3" /></a>
+<a href="https://www.eudances.com/en/madison-james/6192-madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/20624-thickbox_default/madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress 4" /></a>
+
+Buy it: [Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress](https://www.eudances.com/en/madison-james/6192-madison-james-spring-summer-2017-mj313-spaghetti-straps-sleeveless-ivory-aline-chapel-train-simple-chiffon-wedding-dress.html "Madison James Spring/Summer 2017 MJ313 Spaghetti Straps Sleeveless Ivory Aline Chapel Train Simple Chiffon Wedding Dress")
+
+View more: [Madison James](https://www.eudances.com/en/75-Madison-James "Madison James")
