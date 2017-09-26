@@ -3,7 +3,7 @@ layout: post
 date: '2017-05-03'
 title: "Mori Lee 2721 Keyhole Back Lace Wedding Dress"
 category: Mori Lee
-tags: ["dresses","sale","keyhole","mori","style"]
+tags: ["keyhole","special","unique","style","mori"]
 image: http://www.eudances.com/12824-thickbox_default/mori-lee-2721-keyhole-back-lace-wedding-dress.jpg
 ---
 Mori Lee 2721 Keyhole Back Lace Wedding Dress
