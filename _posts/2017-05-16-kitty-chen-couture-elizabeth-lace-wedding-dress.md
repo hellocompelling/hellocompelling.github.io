@@ -3,7 +3,7 @@ layout: post
 date: '2017-05-16'
 title: "Kitty Chen Couture Elizabeth Lace Wedding Dress"
 category: Modest Wedding Dresses
-tags: ["wedding","kitty","crazy","bridal","dresses"]
+tags: ["dress","crazy","elizabeth","style","wedding"]
 image: http://www.eudances.com/1942-thickbox_default/kitty-chen-couture-elizabeth-lace-wedding-dress.jpg
 ---
 Kitty Chen Couture Elizabeth Lace Wedding Dress
