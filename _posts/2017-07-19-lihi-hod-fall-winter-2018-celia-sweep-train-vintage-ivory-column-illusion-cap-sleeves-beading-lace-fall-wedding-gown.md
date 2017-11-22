@@ -3,7 +3,7 @@ layout: post
 date: '2017-07-19'
 title: "Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown"
 category: Lihi Hod
-tags: ["sale","lace","train","gown","vintage"]
+tags: ["ivory","special","fall","column","beading"]
 image: http://www.eudances.com/22771-thickbox_default/lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.jpg
 ---
 Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown
