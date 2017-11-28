@@ -1,0 +1,4 @@
+---
+slug: geometric
+name: geometric
+---
