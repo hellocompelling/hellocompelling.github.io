@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-11-03'
+title: "Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress"
+category: Mikaella
+tags: ["gown","sash","ivory","mikaella","ball"]
+image: http://www.eudances.com/21527-thickbox_default/mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.jpg
+---
+Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress
+
+On Sales: **$328.98**
+<a href="https://www.eudances.com/en/mikaella/6612-mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21527-thickbox_default/mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress 0" /></a>
+<a href="https://www.eudances.com/en/mikaella/6612-mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21532-thickbox_default/mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress 1" /></a>
+<a href="https://www.eudances.com/en/mikaella/6612-mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21531-thickbox_default/mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress 2" /></a>
+<a href="https://www.eudances.com/en/mikaella/6612-mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21530-thickbox_default/mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress 3" /></a>
+<a href="https://www.eudances.com/en/mikaella/6612-mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21529-thickbox_default/mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress 4" /></a>
+<a href="https://www.eudances.com/en/mikaella/6612-mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21528-thickbox_default/mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress 5" /></a>
+
+Buy it: [Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress](https://www.eudances.com/en/mikaella/6612-mikaella-spring-summer-2017-2112-v-neck-organza-ball-gown-sleeveless-with-sash-chapel-train-simple-ivory-bridal-dress.html "Mikaella Spring/Summer 2017 2112 V-Neck Organza Ball Gown Sleeveless with Sash Chapel Train Simple Ivory Bridal Dress")
+
+View more: [Mikaella](https://www.eudances.com/en/106-mikaella "Mikaella")
