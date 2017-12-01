@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-09-18'
+title: "Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress"
+category: Maggie Sottero
+tags: ["dress","sottero","winter","unique","ball"]
+image: http://www.eudances.com/22108-thickbox_default/maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.jpg
+---
+Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress
+
+On Sales: **$328.98**
+<a href="https://www.eudances.com/en/maggie-sottero/7075-maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/22108-thickbox_default/maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress 0" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/7075-maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/22112-thickbox_default/maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress 1" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/7075-maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/22111-thickbox_default/maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress 2" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/7075-maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/22110-thickbox_default/maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress 3" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/7075-maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/22109-thickbox_default/maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress 4" /></a>
+
+Buy it: [Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress](https://www.eudances.com/en/maggie-sottero/7075-maggie-sottero-fall-winter-2017-verity-chapel-train-ivory-beading-simple-sleeveless-ball-gown-bateau-satin-wedding-dress.html "Maggie Sottero Fall/Winter 2017 Verity Chapel Train Ivory Beading Simple Sleeveless Ball Gown Bateau Satin Wedding Dress")
+
+View more: [Maggie Sottero](https://www.eudances.com/en/107-maggie-sottero "Maggie Sottero")
