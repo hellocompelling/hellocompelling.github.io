@@ -1,0 +1,4 @@
+---
+slug: cyprus
+name: cyprus
+---
