@@ -1,0 +1,4 @@
+---
+slug: blanka
+name: blanka
+---
