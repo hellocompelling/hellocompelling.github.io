@@ -3,7 +3,7 @@ layout: post
 date: '2017-10-20'
 title: "Lihi Hod Fall/Winter 2018 Alexandra Vintage Beading Lace Chapel Train Ivory Sheath Fall V-Neck Butterfly Sleeves Wedding Dress"
 category: Lihi Hod
-tags: ["lace","sale","style","sleeves","wedding"]
+tags: ["sleeves","beading","butterfly","crazy","alexandra"]
 image: http://www.eudances.com/22637-thickbox_default/lihi-hod-fall-winter-2018-alexandra-vintage-beading-lace-chapel-train-ivory-sheath-fall-v-neck-butterfly-sleeves-wedding-dress.jpg
 ---
 Lihi Hod Fall/Winter 2018 Alexandra Vintage Beading Lace Chapel Train Ivory Sheath Fall V-Neck Butterfly Sleeves Wedding Dress
