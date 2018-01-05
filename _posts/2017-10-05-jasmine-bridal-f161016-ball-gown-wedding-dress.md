@@ -1,0 +1,18 @@
+---
+layout: post
+date: '2017-10-05'
+title: "Jasmine Bridal F161016 Ball Gown Wedding Dress"
+category: Jasmine Bridal
+tags: ["dresses","special","wedding","dress","sale"]
+image: http://www.eudances.com/1539-thickbox_default/jasmine-bridal-f161016-ball-gown-wedding-dress.jpg
+---
+Jasmine Bridal F161016 Ball Gown Wedding Dress
+
+On Sales: **$372.99**
+<a href="https://www.eudances.com/en/jasmine-bridal/540-jasmine-bridal-f161016-ball-gown-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/1539-thickbox_default/jasmine-bridal-f161016-ball-gown-wedding-dress.jpg" alt="Jasmine Bridal F161016 Ball Gown Wedding Dress 0" /></a>
+<a href="https://www.eudances.com/en/jasmine-bridal/540-jasmine-bridal-f161016-ball-gown-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/1541-thickbox_default/jasmine-bridal-f161016-ball-gown-wedding-dress.jpg" alt="Jasmine Bridal F161016 Ball Gown Wedding Dress 1" /></a>
+<a href="https://www.eudances.com/en/jasmine-bridal/540-jasmine-bridal-f161016-ball-gown-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/1540-thickbox_default/jasmine-bridal-f161016-ball-gown-wedding-dress.jpg" alt="Jasmine Bridal F161016 Ball Gown Wedding Dress 2" /></a>
+
+Buy it: [Jasmine Bridal F161016 Ball Gown Wedding Dress](https://www.eudances.com/en/jasmine-bridal/540-jasmine-bridal-f161016-ball-gown-wedding-dress.html "Jasmine Bridal F161016 Ball Gown Wedding Dress")
+
+View more: [Jasmine Bridal](https://www.eudances.com/en/6-jasmine-bridal "Jasmine Bridal")
