@@ -1,0 +1,4 @@
+---
+slug: bordeaux
+name: bordeaux
+---
