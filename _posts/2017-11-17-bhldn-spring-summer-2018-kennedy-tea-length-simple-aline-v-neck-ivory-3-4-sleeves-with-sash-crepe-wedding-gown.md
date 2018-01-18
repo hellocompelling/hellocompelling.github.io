@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-11-17'
+title: "BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown"
+category: BHLDN
+tags: ["bhldn","sash","summer","crazy","sleeves"]
+image: http://img.eudances.com/25353-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg
+---
+BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown
+
+On Sales: **$238.98**
+<a href="https://www.eudances.com/en/bhldn/8407-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25353-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/bhldn/8407-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25358-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/bhldn/8407-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25357-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/bhldn/8407-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25356-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/bhldn/8407-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25355-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 4" /></a>
+<a href="https://www.eudances.com/en/bhldn/8407-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25354-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 5" /></a>
+
+Buy it: [BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown](https://www.eudances.com/en/bhldn/8407-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html "BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown")
+
+View more: [BHLDN](https://www.eudances.com/en/124-bhldn "BHLDN")
