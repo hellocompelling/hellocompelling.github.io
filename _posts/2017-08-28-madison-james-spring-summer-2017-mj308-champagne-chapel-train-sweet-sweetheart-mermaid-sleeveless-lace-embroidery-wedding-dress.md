@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-08-28'
+title: "Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress"
+category: Madison James
+tags: ["champagne","style","sleeveless","special","bridal"]
+image: http://img.eudances.com/20609-thickbox_default/madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.jpg
+---
+Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress
+
+On Sales: **$488.98**
+<a href="https://www.eudances.com/en/madison-james/6189-madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/20609-thickbox_default/madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress 0" /></a>
+<a href="https://www.eudances.com/en/madison-james/6189-madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/20613-thickbox_default/madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress 1" /></a>
+<a href="https://www.eudances.com/en/madison-james/6189-madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/20612-thickbox_default/madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress 2" /></a>
+<a href="https://www.eudances.com/en/madison-james/6189-madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/20611-thickbox_default/madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress 3" /></a>
+<a href="https://www.eudances.com/en/madison-james/6189-madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/20610-thickbox_default/madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.jpg" alt="Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress 4" /></a>
+
+Buy it: [Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress](https://www.eudances.com/en/madison-james/6189-madison-james-spring-summer-2017-mj308-champagne-chapel-train-sweet-sweetheart-mermaid-sleeveless-lace-embroidery-wedding-dress.html "Madison James Spring/Summer 2017 MJ308 Champagne Chapel Train Sweet Sweetheart Mermaid Sleeveless Lace Embroidery Wedding Dress")
+
+View more: [Madison James](https://www.eudances.com/en/75-Madison-James "Madison James")
