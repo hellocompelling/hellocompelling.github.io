@@ -1,0 +1,4 @@
+---
+slug: stargazer
+name: stargazer
+---
