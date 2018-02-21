@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-09-30'
+title: "Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown"
+category: Berta
+tags: ["wedding","neck","unique","sale","crazy"]
+image: http://img.eudances.com/24923-thickbox_default/berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.jpg
+---
+Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown
+
+On Sales: **$889.98**
+<a href="https://www.eudances.com/en/berta/8266-berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24923-thickbox_default/berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/berta/8266-berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24928-thickbox_default/berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/berta/8266-berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24927-thickbox_default/berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/berta/8266-berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24926-thickbox_default/berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/berta/8266-berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24925-thickbox_default/berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown 4" /></a>
+<a href="https://www.eudances.com/en/berta/8266-berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24924-thickbox_default/berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown 5" /></a>
+
+Buy it: [Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown](https://www.eudances.com/en/berta/8266-berta-fall-winter-2018-style-18-102-chapel-train-open-back-ivory-mermaid-v-neck-cap-sleeves-embroidery-lace-wedding-gown.html "Berta Fall/Winter 2018 Style 18-102 Chapel Train Open Back Ivory Mermaid V-Neck Cap Sleeves Embroidery Lace Wedding Gown")
+
+View more: [Berta](https://www.eudances.com/en/110-berta "Berta")
