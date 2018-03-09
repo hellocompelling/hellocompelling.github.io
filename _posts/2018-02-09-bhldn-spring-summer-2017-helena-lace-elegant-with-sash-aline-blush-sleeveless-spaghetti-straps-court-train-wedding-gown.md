@@ -3,7 +3,7 @@ layout: post
 date: '2018-02-09'
 title: "BHLDN Spring/Summer 2017 Helena Lace Elegant with Sash Aline Blush Sleeveless Spaghetti Straps Court Train Wedding Gown"
 category: BHLDN
-tags: ["bridal","gown","train","crazy","wedding"]
+tags: ["blush","wedding","court","straps","bhldn"]
 image: http://img.eudances.com/26462-thickbox_default/bhldn-spring-summer-2017-helena-lace-elegant-with-sash-aline-blush-sleeveless-spaghetti-straps-court-train-wedding-gown.jpg
 ---
 BHLDN Spring/Summer 2017 Helena Lace Elegant with Sash Aline Blush Sleeveless Spaghetti Straps Court Train Wedding Gown
