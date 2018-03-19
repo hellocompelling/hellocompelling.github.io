@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-02-01'
+title: "Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress"
+category: Maggie Sottero
+tags: ["chapel","style","sale","sleeves","dresses"]
+image: http://img.eudances.com/21815-thickbox_default/maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.jpg
+---
+Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress
+
+On Sales: **$338.98**
+<a href="https://www.eudances.com/en/maggie-sottero/6892-maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21815-thickbox_default/maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress 0" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/6892-maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21820-thickbox_default/maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress 1" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/6892-maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21819-thickbox_default/maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress 2" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/6892-maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21818-thickbox_default/maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress 3" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/6892-maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21817-thickbox_default/maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress 4" /></a>
+<a href="https://www.eudances.com/en/maggie-sottero/6892-maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21816-thickbox_default/maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.jpg" alt="Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress 5" /></a>
+
+Buy it: [Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress](https://www.eudances.com/en/maggie-sottero/6892-maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.html "Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress")
+
+View more: [Maggie Sottero](https://www.eudances.com/en/107-maggie-sottero "Maggie Sottero")
