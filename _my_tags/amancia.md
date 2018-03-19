@@ -1,0 +1,4 @@
+---
+slug: amancia
+name: amancia
+---
