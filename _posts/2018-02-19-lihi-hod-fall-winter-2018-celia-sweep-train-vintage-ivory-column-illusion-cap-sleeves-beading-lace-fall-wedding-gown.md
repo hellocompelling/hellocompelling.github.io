@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-02-19'
+title: "Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown"
+category: Lihi Hod
+tags: ["vintage","style","special","crazy","sleeves"]
+image: http://img.eudances.com/22771-thickbox_default/lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.jpg
+---
+Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown
+
+On Sales: **$588.98**
+<a href="https://www.eudances.com/en/lihi-hod/7290-lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22771-thickbox_default/lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.jpg" alt="Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/lihi-hod/7290-lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22776-thickbox_default/lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.jpg" alt="Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/lihi-hod/7290-lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22775-thickbox_default/lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.jpg" alt="Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/lihi-hod/7290-lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22774-thickbox_default/lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.jpg" alt="Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/lihi-hod/7290-lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22773-thickbox_default/lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.jpg" alt="Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown 4" /></a>
+<a href="https://www.eudances.com/en/lihi-hod/7290-lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22772-thickbox_default/lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.jpg" alt="Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown 5" /></a>
+
+Buy it: [Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown](https://www.eudances.com/en/lihi-hod/7290-lihi-hod-fall-winter-2018-celia-sweep-train-vintage-ivory-column-illusion-cap-sleeves-beading-lace-fall-wedding-gown.html "Lihi Hod Fall/Winter 2018 Celia Sweep Train Vintage Ivory Column Illusion Cap Sleeves Beading Lace Fall Wedding Gown")
+
+View more: [Lihi Hod](https://www.eudances.com/en/112-lihi-hod "Lihi Hod")
