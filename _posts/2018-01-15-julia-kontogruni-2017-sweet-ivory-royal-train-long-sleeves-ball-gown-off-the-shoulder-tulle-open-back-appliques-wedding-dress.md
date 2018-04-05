@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-01-15'
+title: "Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress"
+category: Julia Kontogruni
+tags: ["julia","kontogruni","dresses","ball","unique"]
+image: http://img.eudances.com/27950-thickbox_default/julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.jpg
+---
+Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress
+
+On Sales: **$488.98**
+<a href="https://www.eudances.com/en/julia-kontogruni/9248-julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/27950-thickbox_default/julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.jpg" alt="Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress 0" /></a>
+<a href="https://www.eudances.com/en/julia-kontogruni/9248-julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/27954-thickbox_default/julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.jpg" alt="Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress 1" /></a>
+<a href="https://www.eudances.com/en/julia-kontogruni/9248-julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/27953-thickbox_default/julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.jpg" alt="Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress 2" /></a>
+<a href="https://www.eudances.com/en/julia-kontogruni/9248-julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/27952-thickbox_default/julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.jpg" alt="Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress 3" /></a>
+<a href="https://www.eudances.com/en/julia-kontogruni/9248-julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/27951-thickbox_default/julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.jpg" alt="Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress 4" /></a>
+
+Buy it: [Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress](https://www.eudances.com/en/julia-kontogruni/9248-julia-kontogruni-2017-sweet-ivory-royal-train-long-sleeves-ball-gown-off-the-shoulder-tulle-open-back-appliques-wedding-dress.html "Julia Kontogruni 2017 Sweet Ivory Royal Train Long Sleeves Ball Gown Off-the-shoulder Tulle Open Back Appliques Wedding Dress")
+
+View more: [Julia Kontogruni](https://www.eudances.com/en/130-julia-kontogruni "Julia Kontogruni")
