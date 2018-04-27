@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-01-03'
+title: "Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown"
+category: Galia Lahav
+tags: ["special","beading","style","bridal","galia"]
+image: http://img.eudances.com/28625-thickbox_default/galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.jpg
+---
+Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown
+
+On Sales: **$558.98**
+<a href="https://www.eudances.com/en/galia-lahav/9385-galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/28625-thickbox_default/galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.jpg" alt="Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/galia-lahav/9385-galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/28629-thickbox_default/galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.jpg" alt="Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/galia-lahav/9385-galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/28628-thickbox_default/galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.jpg" alt="Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/galia-lahav/9385-galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/28627-thickbox_default/galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.jpg" alt="Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/galia-lahav/9385-galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/28626-thickbox_default/galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.jpg" alt="Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown 4" /></a>
+
+Buy it: [Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown](https://www.eudances.com/en/galia-lahav/9385-galia-lahav-1017-beading-open-v-back-ivory-asymmetrical-lace-summer-beach-sexy-v-neck-fit-flare-bishop-sleeves-wedding-gown.html "Galia Lahav 1017 Beading Open V Back Ivory Asymmetrical Lace Summer Beach Sexy V-Neck Fit & Flare Bishop Sleeves Wedding Gown")
+
+View more: [Galia Lahav](https://www.eudances.com/en/119-galia-lahav "Galia Lahav")
