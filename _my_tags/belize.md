@@ -1,0 +1,4 @@
+---
+slug: belize
+name: belize
+---
