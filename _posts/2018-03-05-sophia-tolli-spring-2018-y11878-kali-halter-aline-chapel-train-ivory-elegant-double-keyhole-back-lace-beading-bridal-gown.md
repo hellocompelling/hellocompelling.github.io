@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-03-05'
+title: "Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown"
+category: Sophia Tolli
+tags: ["tolli","unique","beading","dresses","keyhole"]
+image: http://img.eudances.com/29015-thickbox_default/sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.jpg
+---
+Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown
+
+On Sales: **$438.98**
+<a href="https://www.eudances.com/en/sophia-tolli/9471-sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/29015-thickbox_default/sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.jpg" alt="Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown 0" /></a>
+<a href="https://www.eudances.com/en/sophia-tolli/9471-sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/29019-thickbox_default/sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.jpg" alt="Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown 1" /></a>
+<a href="https://www.eudances.com/en/sophia-tolli/9471-sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/29018-thickbox_default/sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.jpg" alt="Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown 2" /></a>
+<a href="https://www.eudances.com/en/sophia-tolli/9471-sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/29017-thickbox_default/sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.jpg" alt="Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown 3" /></a>
+<a href="https://www.eudances.com/en/sophia-tolli/9471-sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/29016-thickbox_default/sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.jpg" alt="Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown 4" /></a>
+
+Buy it: [Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown](https://www.eudances.com/en/sophia-tolli/9471-sophia-tolli-spring-2018-y11878-kali-halter-aline-chapel-train-ivory-elegant-double-keyhole-back-lace-beading-bridal-gown.html "Sophia Tolli spring 2018 y11878 Kali Halter Aline Chapel Train Ivory Elegant Double-Keyhole Back Lace Beading Bridal Gown")
+
+View more: [Sophia Tolli](https://www.eudances.com/en/145-sophia-tolli "Sophia Tolli")
