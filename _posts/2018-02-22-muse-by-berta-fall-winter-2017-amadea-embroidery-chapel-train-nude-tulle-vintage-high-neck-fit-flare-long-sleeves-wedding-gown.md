@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-02-22'
+title: "Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown"
+category: Berta
+tags: ["wedding","neck","special","dresses","bridal"]
+image: http://img.eudances.com/24462-thickbox_default/muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.jpg
+---
+Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown
+
+On Sales: **$388.98**
+<a href="https://www.eudances.com/en/berta/8122-muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24462-thickbox_default/muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/berta/8122-muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24466-thickbox_default/muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/berta/8122-muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24465-thickbox_default/muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/berta/8122-muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24464-thickbox_default/muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/berta/8122-muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24463-thickbox_default/muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown 4" /></a>
+
+Buy it: [Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown](https://www.eudances.com/en/berta/8122-muse-by-berta-fall-winter-2017-amadea-embroidery-chapel-train-nude-tulle-vintage-high-neck-fit-flare-long-sleeves-wedding-gown.html "Muse by Berta Fall/Winter 2017 AMADEA Embroidery Chapel Train Nude Tulle Vintage High Neck Fit & Flare Long Sleeves Wedding Gown")
+
+View more: [Berta](https://www.eudances.com/en/110-berta "Berta")
