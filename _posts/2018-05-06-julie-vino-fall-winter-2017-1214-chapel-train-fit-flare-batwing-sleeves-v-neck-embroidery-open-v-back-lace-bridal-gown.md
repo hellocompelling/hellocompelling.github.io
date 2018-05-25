@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-05-06'
+title: "Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown"
+category: Julie Vino
+tags: ["flare","back","chapel","gown","open"]
+image: http://img.eudances.com/32625-thickbox_default/julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.jpg
+---
+Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown
+
+On Sales: **$438.98**
+<a href="https://www.eudances.com/en/julie-vino/10093-julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32625-thickbox_default/julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown 0" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10093-julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32630-thickbox_default/julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown 1" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10093-julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32629-thickbox_default/julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown 2" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10093-julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32628-thickbox_default/julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown 3" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10093-julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32627-thickbox_default/julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown 4" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10093-julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32626-thickbox_default/julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown 5" /></a>
+
+Buy it: [Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown](https://www.eudances.com/en/julie-vino/10093-julie-vino-fall-winter-2017-1214-chapel-train-fit-flare-batwing-sleeves-v-neck-embroidery-open-v-back-lace-bridal-gown.html "Julie Vino Fall/Winter 2017 1214 Chapel Train Fit & Flare Batwing Sleeves V-Neck Embroidery Open V Back Lace Bridal Gown")
+
+View more: [Julie Vino](https://www.eudances.com/en/100-julie-vino "Julie Vino")
