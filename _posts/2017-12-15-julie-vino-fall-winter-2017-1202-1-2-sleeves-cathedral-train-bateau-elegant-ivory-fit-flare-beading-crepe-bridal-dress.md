@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-12-15'
+title: "Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress"
+category: Julie Vino
+tags: ["flare","cathedral","sleeves","dresses","elegant"]
+image: http://img.eudances.com/32387-thickbox_default/julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.jpg
+---
+Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress
+
+On Sales: **$468.98**
+<a href="https://www.eudances.com/en/julie-vino/10046-julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32387-thickbox_default/julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress 0" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10046-julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32392-thickbox_default/julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress 1" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10046-julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32391-thickbox_default/julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress 2" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10046-julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32390-thickbox_default/julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress 3" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10046-julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32389-thickbox_default/julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress 4" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10046-julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32388-thickbox_default/julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress 5" /></a>
+
+Buy it: [Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress](https://www.eudances.com/en/julie-vino/10046-julie-vino-fall-winter-2017-1202-1-2-sleeves-cathedral-train-bateau-elegant-ivory-fit-flare-beading-crepe-bridal-dress.html "Julie Vino Fall/Winter 2017 1202 1/2 Sleeves Cathedral Train Bateau Elegant Ivory Fit & Flare Beading Crepe Bridal Dress")
+
+View more: [Julie Vino](https://www.eudances.com/en/100-julie-vino "Julie Vino")
