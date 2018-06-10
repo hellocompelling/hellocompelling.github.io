@@ -3,7 +3,7 @@ layout: post
 date: '2017-12-26'
 title: "Alon Livne White 2018 VIOLET Ruffle Satin Sweep Train Off-the-shoulder Simple Short Sleeves Ivory Column Wedding Dress"
 category: Alon Livne
-tags: ["dresses","sleeves","train","livne","wedding"]
+tags: ["livne","sweep","simple","shoulder","unique"]
 image: http://img.eudances.com/23248-thickbox_default/alon-livne-white-2018-violet-ruffle-satin-sweep-train-off-the-shoulder-simple-short-sleeves-ivory-column-wedding-dress.jpg
 ---
 Alon Livne White 2018 VIOLET Ruffle Satin Sweep Train Off-the-shoulder Simple Short Sleeves Ivory Column Wedding Dress
