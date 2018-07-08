@@ -3,7 +3,7 @@ layout: post
 date: '2018-02-04'
 title: "Sherri Hill 32335 Short Tulle Beaded Halter Homecoming Dress"
 category: Sherri Hill
-tags: ["homecoming","unique","wedding","sale","sherri"]
+tags: ["dress","bridal","sale","special","unique"]
 image: http://img.eudances.com/15503-thickbox_default/sherri-hill-32335-short-tulle-beaded-halter-homecoming-dress.jpg
 ---
 Sherri Hill 32335 Short Tulle Beaded Halter Homecoming Dress
