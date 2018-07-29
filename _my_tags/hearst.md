@@ -1,0 +1,4 @@
+---
+slug: hearst
+name: hearst
+---
