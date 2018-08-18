@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-08-03'
+title: "Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown"
+category: Ella Rosa
+tags: ["dresses","sheath","straps","rosa","train"]
+image: http://img.eudances.com/21000-thickbox_default/ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.jpg
+---
+Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown
+
+On Sales: **$368.98**
+<a href="https://www.eudances.com/en/ella-rosa/6428-ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21000-thickbox_default/ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/ella-rosa/6428-ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21005-thickbox_default/ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/ella-rosa/6428-ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21004-thickbox_default/ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/ella-rosa/6428-ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21003-thickbox_default/ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/ella-rosa/6428-ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21002-thickbox_default/ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown 4" /></a>
+<a href="https://www.eudances.com/en/ella-rosa/6428-ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/21001-thickbox_default/ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown 5" /></a>
+
+Buy it: [Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown](https://www.eudances.com/en/ella-rosa/6428-ella-rosa-spring-summer-2017-be380-sweep-train-embroidery-champagne-lace-sheath-spaghetti-straps-sleeveless-wedding-gown.html "Ella Rosa Spring/Summer 2017 BE380 Sweep Train Embroidery Champagne Lace Sheath Spaghetti Straps Sleeveless Wedding Gown")
+
+View more: [Ella Rosa](https://www.eudances.com/en/102-ella-rosa "Ella Rosa")
