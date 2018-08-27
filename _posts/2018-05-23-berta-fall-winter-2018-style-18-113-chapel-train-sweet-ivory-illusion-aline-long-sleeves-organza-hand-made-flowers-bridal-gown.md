@@ -3,7 +3,7 @@ layout: post
 date: '2018-05-23'
 title: "Berta Fall/Winter 2018 Style 18-113 Chapel Train Sweet Ivory Illusion Aline Long Sleeves Organza Hand-made Flowers Bridal Gown"
 category: Berta
-tags: ["unique","aline","made","dresses","ivory"]
+tags: ["illusion","wedding","sweet","berta","fall"]
 image: http://img.eudances.com/24865-thickbox_default/berta-fall-winter-2018-style-18-113-chapel-train-sweet-ivory-illusion-aline-long-sleeves-organza-hand-made-flowers-bridal-gown.jpg
 ---
 Berta Fall/Winter 2018 Style 18-113 Chapel Train Sweet Ivory Illusion Aline Long Sleeves Organza Hand-made Flowers Bridal Gown
