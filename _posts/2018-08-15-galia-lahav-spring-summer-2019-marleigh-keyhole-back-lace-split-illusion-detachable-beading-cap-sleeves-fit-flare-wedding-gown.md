@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-08-15'
+title: "Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown"
+category: Galia Lahav
+tags: ["flare","bridal","sale","unique","special"]
+image: http://img.eudances.com/37711-thickbox_default/galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.jpg
+---
+Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown
+
+On Sales: **$889.98**
+<a href="https://www.eudances.com/en/galia-lahav/11153-galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/37711-thickbox_default/galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.jpg" alt="Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/galia-lahav/11153-galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/37715-thickbox_default/galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.jpg" alt="Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/galia-lahav/11153-galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/37714-thickbox_default/galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.jpg" alt="Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/galia-lahav/11153-galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/37713-thickbox_default/galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.jpg" alt="Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/galia-lahav/11153-galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/37712-thickbox_default/galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.jpg" alt="Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown 4" /></a>
+
+Buy it: [Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown](https://www.eudances.com/en/galia-lahav/11153-galia-lahav-spring-summer-2019-marleigh-keyhole-back-lace-split-illusion-detachable-beading-cap-sleeves-fit-flare-wedding-gown.html "Galia Lahav Spring/Summer 2019 Marleigh Keyhole Back Lace Split Illusion Detachable Beading Cap Sleeves Fit & Flare Wedding Gown")
+
+View more: [Galia Lahav](https://www.eudances.com/en/119-galia-lahav "Galia Lahav")
