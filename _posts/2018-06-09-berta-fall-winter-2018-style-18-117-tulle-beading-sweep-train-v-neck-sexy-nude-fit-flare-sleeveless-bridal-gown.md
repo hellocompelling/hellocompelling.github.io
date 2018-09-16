@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-06-09'
+title: "Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown"
+category: Berta
+tags: ["special","neck","sweep","train","sexy"]
+image: http://img.eudances.com/24948-thickbox_default/berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.jpg
+---
+Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown
+
+On Sales: **$688.98**
+<a href="https://www.eudances.com/en/berta/8272-berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24948-thickbox_default/berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown 0" /></a>
+<a href="https://www.eudances.com/en/berta/8272-berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24953-thickbox_default/berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown 1" /></a>
+<a href="https://www.eudances.com/en/berta/8272-berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24952-thickbox_default/berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown 2" /></a>
+<a href="https://www.eudances.com/en/berta/8272-berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24951-thickbox_default/berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown 3" /></a>
+<a href="https://www.eudances.com/en/berta/8272-berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24950-thickbox_default/berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown 4" /></a>
+<a href="https://www.eudances.com/en/berta/8272-berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24949-thickbox_default/berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown 5" /></a>
+
+Buy it: [Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown](https://www.eudances.com/en/berta/8272-berta-fall-winter-2018-style-18-117-tulle-beading-sweep-train-v-neck-sexy-nude-fit-flare-sleeveless-bridal-gown.html "Berta Fall/Winter 2018 Style 18-117 Tulle Beading Sweep Train V-Neck Sexy Nude Fit & Flare Sleeveless Bridal Gown")
+
+View more: [Berta](https://www.eudances.com/en/110-berta "Berta")
