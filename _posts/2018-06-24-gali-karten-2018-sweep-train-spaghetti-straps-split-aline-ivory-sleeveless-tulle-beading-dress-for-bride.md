@@ -3,7 +3,7 @@ layout: post
 date: '2018-06-24'
 title: "Gali Karten 2018 Sweep Train Spaghetti Straps Split Aline Ivory Sleeveless Tulle Beading Dress For Bride"
 category: Galia Lahav
-tags: ["split","bridal","ivory","sale","straps"]
+tags: ["train","gali","beading","crazy","spaghetti"]
 image: http://img.eudances.com/26069-thickbox_default/gali-karten-2018-sweep-train-spaghetti-straps-split-aline-ivory-sleeveless-tulle-beading-dress-for-bride.jpg
 ---
 Gali Karten 2018 Sweep Train Spaghetti Straps Split Aline Ivory Sleeveless Tulle Beading Dress For Bride
